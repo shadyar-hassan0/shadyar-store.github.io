@@ -1,1 +1,0 @@
-# shadyar-store.github.io
